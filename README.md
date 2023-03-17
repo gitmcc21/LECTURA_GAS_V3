@@ -1,0 +1,1 @@
+# LECTURA_GAS_V3
